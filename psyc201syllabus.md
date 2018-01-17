@@ -1,6 +1,6 @@
 # PSYC 201: Social Psychology Syllabus Spring 2018
 
-## Instructor: Patrick Sweeney
+## Instructor: Aysenur Benevento
 
 ### Readings
 
